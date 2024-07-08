@@ -9,7 +9,7 @@
 - Milk frother
 - Optional sweetener
 - 1 teaspoon 
-- adding something
+- adding some
 
 ## How to Make Caffè Latte
 
